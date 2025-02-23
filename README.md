@@ -1,1 +1,1 @@
-# G-Contest-2024
+# G'Contest-2024
